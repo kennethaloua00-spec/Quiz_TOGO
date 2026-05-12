@@ -109,4 +109,4 @@ Les contributions sont les bienvenues ! Pour ajouter des questions :
 
 ---
 
-> Fait avec ❤️ pour valoriser la culture et l'histoire du Togo 🇹🇬
+> Valorisons la culture et l'histoire du Togo
